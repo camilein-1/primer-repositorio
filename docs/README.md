@@ -1,3 +1,3 @@
-# este es mi primer trabajito 
+# este es mi primer trabajo
 escribiendo cosas 
 
